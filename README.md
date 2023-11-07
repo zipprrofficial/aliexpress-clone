@@ -1,4 +1,4 @@
-An <a href="https://zipprr.com/category/aliexpress-clone/">AliExpress clone script</a> is an ecommerce platform that replicates the features and functionalities of AliExpress. It enables sellers to create online stores and list their products while providing a marketplace for buyers to discover and purchase items wholesale directly from suppliers and manufacturers.
+An <a href="https://zipprr.com/aliexpress-clone/">AliExpress clone script</a> is an ecommerce platform that replicates the features and functionalities of AliExpress. It enables sellers to create online stores and list their products while providing a marketplace for buyers to discover and purchase items wholesale directly from suppliers and manufacturers.
 
 <h2><b>Key Features</b></h2>
 
